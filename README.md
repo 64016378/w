@@ -1,6 +1,6 @@
 # COMETHAZINE 
 
-aoron is super smart 
+COMEHAZINE IS THE BEST RAPPER 
 
 COMETHAZINE
 
